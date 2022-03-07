@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am a chatty PhD student who touches 🐟 a lot. Below are some fun facts about this account:
+I am a chatty PhD student who touches 🐟 a lot. Below are some logistics about this account:
 
 ### Star the Repos, Rather than Following the Accounts
 
